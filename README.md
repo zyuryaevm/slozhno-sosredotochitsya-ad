@@ -1,1 +1,1 @@
-https://github.com/zyuryaevm/slozhno-sosredotochitsya-ad#
+https://github.com/zyuryaevm/slozhno-sosredotochitsya-ad
