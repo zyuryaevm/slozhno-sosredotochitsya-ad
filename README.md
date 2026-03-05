@@ -1,0 +1,1 @@
+https://github.com/zyuryaevm/slozhno-sosredotochitsya-ad#
